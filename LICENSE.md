@@ -1,4 +1,4 @@
-#  
+#  3008 Script no-ban is the best 3008 Script, featuring esp and auto-sell. Safe and powerful for all your needs.
 
 
 
